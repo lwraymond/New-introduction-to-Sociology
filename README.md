@@ -1,2 +1,2 @@
-# New-introduction-to-Sociology
+# 《社会学概论新修》
 郑杭生主编《社会学概论新修》思维导图
